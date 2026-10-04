@@ -1,0 +1,2 @@
+# premium-out-rigger-001-outrigger-bracket-forging-wa
+Tired of losing track of measurements, material specs, and forging sequences when crafting custom outrigger brackets and wall arms? This Notion template turns your workshop chaos into a streamlined, repeatable process.  This template solves the disorganization that plagues custom metal fabrication projects. Instead of scattered notes and forgotten
